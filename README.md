@@ -9,6 +9,9 @@ Conoce todos los ingredientes que estan en armonia con el medio ambiente!!
 
 Somos un grupo de estudiantes coomprometidos con la naturaleza. 
 
-Nuestra información de contacto es: https://wa.me/qr/JJJBP7NKD5GEN1![IMG_5103](https://github.com/Sofpx0513/Nature-Life/assets/167163339/84a33274-00cd-49c8-8054-fe5ecfd9d8a9)
-![IMG_5104](https://github.com/Sofpx0513/Nature-Life/assets/167163339/816eb9b0-e1b3-45ca-87ac-328055fda6c3)
-![IMG_5105](https://github.com/Sofpx0513/Nature-Life/assets/167163339/8171cd46-78e5-4c98-8115-10bfa7f22807)
+Nuestra información de contacto es: https://wa.me/qr/JJJBP7NKD5GEN1![IMG_5103]
+
+![image](https://github.com/Sofpx0513/Nature-Life/assets/167163339/fbc1accb-55f4-4ba9-baf2-9739ff6543e2)
+
+
+PROTEGE TU HUERTO, CULTIVA CON ORGULLO, NUESTRO INSECTICIDA TU ALIADO SEGURO!
